@@ -1,1 +1,0 @@
-# empowering-inventory-management
